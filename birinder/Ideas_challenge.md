@@ -2,7 +2,7 @@ I wish I had talked my heart out to my son and told him how much I loved him,
 I wish I had not prioritized my work and been there with him on his birthday
 I wish I had listened to him when he felt alone
 I wish I could go back in time and hold his hand and stop him from taking that drastic step of ending his life.
-I wish !
+
 Unfortunately many parents around had this realization only after their dear ones succumbed to depression.
 Nuclear families technological development and ifestyle has lost the human connection. The biggest challenege in this is unlike
 some other health problems this one is not eay to detect and not many people suffering from it some out and talk about it.
