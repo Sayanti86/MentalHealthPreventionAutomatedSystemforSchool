@@ -27,6 +27,8 @@ Teachers will then receive their class’ results containing every student menta
 
 Using an algorithm will ensure fast analysis and will not require any additional time and financial costs from the schools.  Moreover, this approach is highly scalable to the corporate world and will allow to build a data lake for further research.
 
+We hope that our solution will ensure healthy lives and promote well-being for all in a digital era where adoption of technology and computer aided instructions in schools are encouraged.
+
 
 
 
